@@ -1,0 +1,1 @@
+# buatayangnyasauqi.github.io
